@@ -1,5 +1,7 @@
 # Las Cinco Marcas De la Misecordia.
 
-## Versiculo a memorizar
-*MATEO 5:7*
+## Versículo a memorizar
 "Bienaventurados los misericordiosos, porque ellos recibirán misericordia".
+*MATEO 5:7*
+## Versículos
+*Exodo*
