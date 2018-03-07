@@ -10,3 +10,10 @@
 
 "Clemente y compasivo es el SEÑOR, lento para la ira y grande en misericordia."
 *SALMO 145:8*
+
+## Las cinco marcas de la misericordia.
+
+* Perdono a los que han caido.
+
+"Soportándose los unos a los otros y perdonándose los unos a los otros, cuando alguien tenga queja del otro. De la manera que el Señor los perdonó, así también háganlo ustedes"
+*COLOSENSES 3:13*
