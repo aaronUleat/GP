@@ -50,3 +50,29 @@
 
 "Porque de tal manera amó Dios al mundo, que ha dado a su Hijo unigénito para que todo aquel que en él cree no se pierda mas tenga vida eterna."
 *JUAN 3:16*
+
+### TRES MOTIVACIONES PARA LA MISERICORDIA.
+
+* Debo de ser misericordioso por que Dios es misericordioso.
+
+"Clemente es Jehová, y justo; sí, misericordioso es nuestro Dios."
+*SALMO 116:5*
+
+"Sed, pues, misericordiosos, como también vuestro Padre es misericordioso."
+*LUCAS 6:36*
+
+"21 También a vosotros, que erais en otro tiempo extraños y enemigos por vuestros pensamientos y por vuestras malas obras, ahora os ha reconciliado 22 en su cuerpo de carne, por medio de la muerte, para presentaros santos y sin mancha e irreprochables delante de él."
+*COlOSENSES 1:21-22*
+
+* Debo ser misericordioso por que yo necesito misericordia todos los días.
+
+"Porque juicio sin misericordia se hará con aquel que no haga misericordia; y la misericordia triunfa sobre el juicio."
+*SANTIAGO 2:13*
+
+"Bienaventurados los misericordiosos, porque alcanzarán misericordia."
+*MATEO 5:7*
+
+* Debo ser misericordioso por que la misericordia me hace feliz.
+
+"A su alma hace bien el hombre misericordioso, pero el cruel se atormenta a sí mismo."
+*PROVERBIOS 11:17*
